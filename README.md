@@ -1,0 +1,2 @@
+# Think
+Daily record
